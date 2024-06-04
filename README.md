@@ -10,5 +10,4 @@ Meu nome é Breno Brasil
 - Você pode entrar em contato comigo 📫
 - daisybigfan@gmail.com
 
-![![asa ッ (closed)](https://github.com/chinat0wnn/Alura-/assets/171729548/12a292d0-9a89-4ef3-8d68-aa563fb6c84b)
-](link)
+![https://media.tenor.com/eSk6kTNYWc0AAAAM/haikyuu-ryuunosuke-tanaka.gif](link)
